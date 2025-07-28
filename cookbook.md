@@ -1,4 +1,4 @@
-Vegan Linzer torte
+# Vegan Linzer torte
 
 Ingredients:
 - 200 g almonds or hazelnuts, ground
