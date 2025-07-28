@@ -71,4 +71,4 @@ Serve with powdered sugar, fruit, jam, nut nougat cream, or similar to taste.
 - ingredient 2
 - ingredient 3
 
-Instrucitions: first do A, then B and finally C.
+Instructions: first do A, then B and finally C.
