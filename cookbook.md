@@ -44,3 +44,23 @@ Fry the gnocchi in olive oil in a hot pan. Dice the onion, add to the hot gnocch
 Wash the vegetables and cut into small cubes. Cut the cocktail tomatoes in half. Add all the vegetables to the gnocchi in the pan and steam on medium heat. The vegetables will be done after about 15 minutes.
 
 Chop the parsley and add to the pan. Finally, season to taste with salt, pepper, and honey.
+
+
+
+# Sweet vegan pancakes
+
+- 1 cup     Apple juice, clear or naturally cloudy *
+- 2 tsp     Baking powder
+- 2 cup(s)     Wheat flour
+- 2 tsp     Brown syrup, sugar, or other sweetener
+- 1 cup     Soy milk (soy drink)
+- 1 pinch(es)     Salt
+- Fat for frying
+
+The cup used as a measure holds approx. 240 ml.
+
+Mix the baking powder with the flour. Mix all ingredients with a whisk or mixer to form a smooth batter.
+
+Heat some fat in a pan and add enough batter with a ladle. Spread it out in the pan by swirling it around. Cook for about 2-3 minutes on each side on medium heat.
+
+Serve with powdered sugar, fruit, jam, nut nougat cream, or similar to taste.
