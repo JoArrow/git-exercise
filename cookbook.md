@@ -12,3 +12,15 @@ Ingredients:
 - 1 jar     cranberries (300–350 g)
 - 1 tbsp     powdered sugar
 - 1 pinch     ground cinnamon
+
+Grate the orange zest and squeeze the juice. Place all the ingredients for the dough in a large bowl, adding only 2 tablespoons of orange juice at first. Knead with your hands until you have a smooth dough. If the dough is too dry, add a little more juice; if it is too soft, knead in a little more flour. Chill the dough for 20 minutes.
+
+Then line the bottom of a round springform pan (26 cm Ø) with baking paper and grease the sides. Knead 2/3 of the dough into the pan, forming a rim about 2 cm high. Spread the cranberries on the dough. Roll out the remaining third of the dough on a floured surface and cut into strips. Brush the edge of the cake with a little water, place the strips in a lattice pattern on the cake, and press down slightly at the edge. Or, for a simpler option, cut out shapes with cookie cutters and place them on the filling.
+
+Bake in a preheated oven at 356°F for about 40–45 minutes.
+
+Once cooled, it's best to wrap the pie in foil and let it sit in a cool place for 2–3 days so the dough gets nice and crumbly and the flavors can really develop.
+
+Before serving, mix 1 tablespoon of powdered sugar with a pinch of cinnamon and dust the cake thinly with it (using a tea strainer).
+
+This Linzer torte has a tart, fruity flavor and is not too sweet.
