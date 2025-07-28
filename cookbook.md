@@ -9,3 +9,6 @@ Ingredients:
 - 1 packet vanilla sugar
 - 1 pinch salt
 - 1 organic orange, juice and zest
+- 1 jar     cranberries (300–350 g)
+- 1 tbsp     powdered sugar
+- 1 pinch     ground cinnamon
