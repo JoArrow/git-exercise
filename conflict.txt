@@ -1,6 +1,11 @@
 Round 1
 paper
+both win
 Round 2
 rock
+both win
+Round 2
+paper
 Round 3
 scissors
+both win
