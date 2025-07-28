@@ -24,3 +24,23 @@ Once cooled, it's best to wrap the pie in foil and let it sit in a cool place fo
 Before serving, mix 1 tablespoon of powdered sugar with a pinch of cinnamon and dust the cake thinly with it (using a tea strainer).
 
 This Linzer torte has a tart, fruity flavor and is not too sweet.
+
+
+
+# Gnocchi vegetable stir-fry
+
+1 bag gnocchi (from the refrigerated section, approx. 500 g)
+- a little oil for frying
+- 1 onion(s)
+- 1 handful cocktail tomatoes
+- 1 zucchini
+- 1 eggplant(s)
+- 1 bunch parsley
+- Salt and pepper
+- 1 tsp honey or sugar
+
+Fry the gnocchi in olive oil in a hot pan. Dice the onion, add to the hot gnocchi and sauté until translucent.
+
+Wash the vegetables and cut into small cubes. Cut the cocktail tomatoes in half. Add all the vegetables to the gnocchi in the pan and steam on medium heat. The vegetables will be done after about 15 minutes.
+
+Chop the parsley and add to the pan. Finally, season to taste with salt, pepper, and honey.
