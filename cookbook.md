@@ -64,3 +64,11 @@ Mix the baking powder with the flour. Mix all ingredients with a whisk or mixer 
 Heat some fat in a pan and add enough batter with a ladle. Spread it out in the pan by swirling it around. Cook for about 2-3 minutes on each side on medium heat.
 
 Serve with powdered sugar, fruit, jam, nut nougat cream, or similar to taste.
+
+# Yet another vegan recipe
+
+- incredient 1
+- incredient 2
+- incredient 3
+
+Instrucitons: first do A, then B and finaly C.
